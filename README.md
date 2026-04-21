@@ -1,2 +1,0 @@
-# Harshali-Rajput-
-It 
